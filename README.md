@@ -1,0 +1,2 @@
+# prodas6_perkalian_bentuk_segi4
+Mohamad Bagoes Ali Yuddin_20051397048_2020B
